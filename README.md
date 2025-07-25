@@ -5,7 +5,7 @@
 matching gh w/@im-hansolo <3
 
          
-          ᴺᵒʷ ᵖˡᵃʸᶦⁿᵍ; [ Kiss Me ] 
+          ᴺᵒʷ ᵖˡᵃʸᶦⁿᵍ; Kiss Me
                   
                          ♬
                         
